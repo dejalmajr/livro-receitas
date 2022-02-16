@@ -1,4 +1,4 @@
 
 # Índice de Receitas
 
-### Strogonoff de Frango
+### 1) Strogonoff de Frango
